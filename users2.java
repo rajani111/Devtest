@@ -1,2 +1,7 @@
+
+>>>><
 hi thisi is develoment ranch
-heello
+heel
+>>>>>
+lo
+ia m updating new line
